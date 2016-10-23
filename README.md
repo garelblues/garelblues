@@ -1,0 +1,2 @@
+# garelblues
+root my phone
